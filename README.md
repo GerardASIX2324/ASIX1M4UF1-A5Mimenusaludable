@@ -1,1 +1,0 @@
-# ASIX1M4UF1-A5Mimenusaludable
